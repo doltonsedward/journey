@@ -2,3 +2,4 @@ File ini berisi resolusi kedepannya
 
 resolusi:
 - membuat cerita berdasarkan pengalaman hidup
+- mencoba membuat wiki
