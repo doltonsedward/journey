@@ -47,6 +47,7 @@
 
 **Gambar Transparant**
 1. [pngdownload.id](https://pngdownload.id/)
+2. [pngtree](https://pngtree.com/)
    
 
 Mari menjadi warga negara yang baik di komunitas teknologi dan memanfaatkan ilustrasi yang disiapkan secara bijak. Jadi ketika Anda bekerja dengan ilustrasi gratis, ikuti aturan sederhana ini:
