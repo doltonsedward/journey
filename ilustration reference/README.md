@@ -44,6 +44,9 @@
 5. [pixabay](https://pixabay.com/)
 6. [vecteezy](https://www.vecteezy.com/browse/)
 7. [thenounproject](https://thenounproject.com/)
+
+**Gambar Transparant**
+1. [pngdownload.id](https://pngdownload.id/)
    
 
 Mari menjadi warga negara yang baik di komunitas teknologi dan memanfaatkan ilustrasi yang disiapkan secara bijak. Jadi ketika Anda bekerja dengan ilustrasi gratis, ikuti aturan sederhana ini:
