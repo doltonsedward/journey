@@ -42,6 +42,8 @@
 3. [wannapik](https://www.wannapik.com/)
 4. [pngtree](https://pngtree.com/)
 5. [pixabay](https://pixabay.com/)
+6. [vecteezy](https://www.vecteezy.com/browse/)
+7. [thenounproject](https://thenounproject.com/)
    
 
 Mari menjadi warga negara yang baik di komunitas teknologi dan memanfaatkan ilustrasi yang disiapkan secara bijak. Jadi ketika Anda bekerja dengan ilustrasi gratis, ikuti aturan sederhana ini:
