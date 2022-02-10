@@ -1,6 +1,4 @@
 <h1>Journey</h1>
 
-<p> 
-  Hello all
-</p>
+Hello all
 This repo contains my journey, from zero till now
